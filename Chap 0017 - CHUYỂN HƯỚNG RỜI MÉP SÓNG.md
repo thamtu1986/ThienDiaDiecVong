@@ -2,21 +2,39 @@ CHƯƠNG 17: CHUYỂN HƯỚNG RỜI MÉP SÓNG
 
 Nắng sớm đã lên cao quá một tầm tay trên mặt biển phía đông, hắt xuống dải đá ven bờ thứ ánh sáng vàng nhạt làm lộ rõ từng vệt muối khô trắng mờ bám dọc các khe trũng thấp. Lâm Tĩnh đứng yên trên phiến đá nhám khô ráo, bàn tay phải siết nhẹ đầu cành cây khô dùng làm gậy dò đường, mắt nhìn lướt qua quãng bờ vừa đi qua rồi ngoái lại phía gờ đá thấp nơi chỗ trú tạm của hắn nằm khuất sau mấy tảng đá lớn.
 
+
+
 Dải đá ven bờ trải dài trước mặt vẫn giữ nguyên vẻ gồ ghề lặp lại: những bậc đá dốc nghiêng xen kẽ khe nước mặn, những phiến đá trơn bóng vì sóng liếm qua và vài vệt rác biển khô quắt mắc kẹt trên gờ cao. Từ lúc rời chỗ trú đầu ngày đến giờ, ba lần kiểm tra liên tiếp dọc mép sóng đều không mang lại giọt nước ngọt nào dùng được hay nguồn thức ăn đáng kể, trong khi cẳng chân bị thương đã bắt đầu đau nhói rõ rệt mỗi khi dồn lực, cơn đau lan dần xuống cổ chân, vùng hông-sườn cũng căng tức nặng hơn sau từng nhịp cúi người và quỳ thấp.
+
+
 
 Nếu tiếp tục men sâu thêm dọc theo dải đá sát mép sóng này, phần lớn sức lực còn lại của hắn sẽ tiếp tục tiêu hao vào việc giữ thăng bằng trên những phiến đá ẩm dốc và dò tìm trong một kiểu địa hình đã cho thấy tỷ lệ thu hoạch quá thấp. Quan trọng hơn, đi càng xa khỏi gờ đá thấp dọc theo tuyến bờ khó đi, quãng đường quay về nơi trú càng kéo dài, trong khi bình chứa nước dự trữ vẫn nằm lại ở chỗ trú, chỉ còn lượng nước ít ỏi sau ngụm dè sẻn lúc rạng sáng.
 
+
+
 Lâm Tĩnh không đứng phân vân quá lâu dưới nắng đang gắt dần. Hắn dời tầm mắt khỏi đường mép sóng phía trước, hướng lên dải địa hình cao hơn nằm chếch vào phía trong bờ đá—nơi mặt đá xám chuyển dần sang những bậc đá khô xếp chồng, xen lẫn các kẽ nứt sâu, lớp đất sỏi cằn và những bụi cây thấp mọc bám vào chân vách đá. So với dải đá trơn ướt sát sóng, địa thế phía trong tuy gồ ghề và phải leo dốc nhẹ, nhưng mặt đá khô có độ bám ổn định hơn, ít chịu tác động trực tiếp của nước biển dâng, đồng thời mở ra khả năng quan sát các khe nứt tích tụ hơi ẩm hoặc nguồn thực vật cạn mà mép sóng không có.
+
+
 
 Trước khi rời khỏi vị trí đứng hiện tại, Lâm Tĩnh kiểm tra lại hướng quay về nơi trú một lần nữa. Hắn ghi nhận vị trí một khối đá sẫm màu có hình thù gãy góc nằm nhô cao ngay ranh giới giữa dải đá ven bờ và triền đá khô phía trong, xem đó như mốc đối chiếu trung gian nối giữa đoạn bờ vừa khảo sát, lối rẽ mới và đường lùi về gờ đá thấp. Chỉ khi chắc chắn hướng rút lui không bị mất dấu, hắn mới chống gậy dò đường, xoay người rời khỏi dải đá sát mép sóng.
 
+
+
 Những bước đầu tiên chuyển hướng vào phần triền đá cao hơn diễn ra chậm rãi. Mỗi lần đặt chân lên bậc đá mới, Lâm Tĩnh đều đưa đầu cành cây khô gõ nhẹ xuống mặt đá để thử độ chắc và tìm điểm tì ổn định trước khi chuyển trọng tâm. Bả vai trái vẫn hơi co cứng khiến tay trái không thể vung tự nhiên để giữ thăng bằng, buộc hắn phải hạ thấp nhịp bước, chia nhỏ từng đoạn leo ngắn thay vì bước sải dài. Cẳng chân bị thương phản ứng chậm khi nhấc qua các gờ đá cao quá nửa gang tay; mỗi lần đầu gối gập sâu để bước lên, một luồng đau nhói lại dội từ bắp chân xuống tới cổ chân, kéo theo cảm giác căng rát ở vùng hông-sườn.
+
+
 
 Bù lại, mặt đá ở khu vực chuyển tiếp này khô ráo hơn hẳn dải bờ sát sóng. Dưới đế giày không còn lớp rêu ẩm trơn trượt hay những vệt nước biển đọng bất ngờ sau mỗi đợt sóng vỗ. Không khí tại đây cũng bớt hơi muối nồng gắt, nhưng gió biển bị các tảng đá lớn chắn bớt khiến cái nóng của nắng sớm bắt đầu đọng lại trên mặt đá xám, làm cổ họng khô rát của Lâm Tĩnh càng thêm khó chịu. Hắn nuốt khan một ngụm nước bọt ít ỏi, cố giữ nhịp thở đều qua mũi để hạn chế mất hơi ẩm.
 
+
+
 Đi được chừng vài chục bước chếch lên theo triền đá khô, địa hình bắt đầu tách thành hai lớp rõ rệt: bên trái là dải đá bậc thang thoải dẫn hướng về phía chân một vách đá thấp có nhiều kẽ nứt dọc và vài cụm cỏ dại lẫn bụi cây lá cứng mọc thưa thớt; bên phải là phần gờ đá cao nhô ra như một mỏm quan sát tự nhiên, từ đó có thể nhìn bao quát cả đoạn bờ biển vừa đi qua lẫn một phần sườn đảo phía trong.
 
+
+
 Lâm Tĩnh dừng lại dưới bóng râm hẹp của một tảng đá lớn nằm ngay ngã chia giữa hai hướng, chống gậy đứng nghỉ vài nhịp để cho cẳng chân bị thương giảm bớt áp lực chịu tải. Hắn tựa nhẹ hông bên lành vào mặt đá mát phía khuất nắng, tranh thủ quan sát cả hai hướng trước khi quyết định dồn sức lực còn lại vào đâu.
+
+
 
 Hướng về phía chân vách đá thấp có ưu thế rõ ràng về khả năng tìm kiếm tài nguyên cạn: những kẽ nứt dọc chân vách đá thường là nơi giữ lại độ ẩm ban đêm hoặc dẫn dòng nước rỉ từ tầng đá cao hơn xuống, nếu có; đồng thời, các bụi cây lá cứng và đám cỏ mọc bám trong kẽ đất sỏi cũng mở ra khả năng kiểm tra lá, rễ hoặc dấu vết côn trùng nhỏ mà dải tàn dư ven biển không có. Tuy nhiên, khu vực chân vách đá bị che khuất tầm nhìn rộng, và nếu tiến sâu vào các khe hẹp giữa đá tảng mà chưa nắm rõ cấu trúc lối đi, việc quay trở ra khi thể lực giảm sút sẽ tốn nhiều sức hơn.
 
@@ -24,18 +42,35 @@ Ngược lại, mỏm đá cao bên phải không hứa hẹn nguồn nước ha
 
 Cân nhắc giữa hai phương án, Lâm Tĩnh nhận ra việc lao ngay vào lục soát chân vách đá khi chưa nhìn rõ tổng thể địa hình phía trước sẽ dễ lặp lại sai lầm tiêu hao sức lực như ở mép sóng. Hắn quyết định tận dụng quãng ngắn lên mỏm đá cao để quan sát định vị trước, sau đó mới hạ xuống kiểm tra khu vực chân vách đá thấp trên đường quay về hướng nơi trú—vừa thu thập thêm dữ liệu địa hình, vừa giữ lộ trình khép kín để không bị kéo quá xa khỏi bình nước dự trữ.
 
+
+
 Quyết định xong, Lâm Tĩnh rời khỏi bóng tảng đá, chống gậy bước từng bậc nhỏ lên phía mỏm đá cao bên phải. Quãng leo chỉ dài chừng mười mấy bước chân nhưng độ dốc tăng dần khiến cẳng chân bị thương nhanh chóng báo hiệu giới hạn. Ở bậc đá gần đỉnh mỏm, một hòn đá rời cỡ nắm tay hơi lăn nhẹ dưới mũi chân trước; Lâm Tĩnh lập tức ghì chặt đầu gậy gỗ xuống khe đá bên cạnh, dồn trọng tâm sang chân lành và hạ thấp người giữ thăng bằng. Cú giật bất ngờ khiến cơ vùng hông-sườn nhói lên dữ dội và bả vai trái căng cứng lại, nhưng hắn giữ được thế đứng, không để cơ thể ngã chúi về phía sau.
+
+
 
 Hắn đứng yên trên bậc đá vài nhịp thở cho cơn đau dịu bớt, nhìn xuống hòn đá nhỏ vừa trượt lăn vào kẽ hẹp bên dưới. Sự cố nhỏ ấy nhắc hắn rằng ngay cả trên địa hình đá khô phía trong, sự mỏi cơ và phản ứng chậm của chân bị thương vẫn có thể biến một bậc đá bình thường thành mối nguy hiểm nếu bước vội.
 
+
+
 Khi đặt chân lên mặt bằng hẹp trên đỉnh mỏm đá cao, Lâm Tĩnh không đứng thẳng quá lâu mà chọn một phiến đá phẳng ngang tầm đầu gối để ngồi tựa nửa người, vừa giảm tải cho cẳng chân và vùng hông-sườn, vừa giữ tầm mắt ngang qua toàn bộ khung cảnh mở ra trước mặt.
+
+
 
 Từ vị trí này, dải đá ven bờ buổi sáng hiện ra thành một đường viền xám khúc khuỷu chạy dọc mép nước trắng xóa. Hắn nhìn rõ chỗ rãnh nước mặn đầu tiên, dải đá thấp nơi từng kiểm tra những mảnh vỏ sò rỗng và cả khe đá hẹp chứa hốc nước sâu mà hắn đã chủ động từ bỏ. Đặt cạnh toàn bộ chiều dài bờ đá phía trước, đoạn bờ đã khảo sát chỉ chiếm một phần nhỏ, nhưng phần còn lại dọc theo tuyến biển cũng mang cấu trúc đá dốc và sóng vỗ tương tự—xác nhận rằng quyết định rời mép sóng để chuyển hướng vào trong là lựa chọn hợp lý.
 
+
+
 Quay tầm mắt sang phía trái và sâu hơn vào lòng đảo, Lâm Tĩnh ghi nhận thêm những lớp địa hình mới: ngoài chân vách đá thấp có cây bụi mọc thưa ngay phía dưới mỏm quan sát, xa hơn một quãng là một triền đất đá thoải phủ nhiều mảng cây bụi dày hơn, nơi sắc xanh sẫm hơn hẳn các bụi cỏ cằn gần bờ biển. Ở hướng ngược lại, nhìn về phía sau, gờ đá thấp nơi đặt chỗ trú vẫn nhận diện được nhờ khối đá sẫm màu gãy góc làm mốc trung gian, giúp hắn ước lượng tương đối chính xác quãng đường và thời gian cần thiết để quay về.
+
+
 
 Ngoài khơi xa, mặt biển dưới nắng sớm đã sáng rõ hơn, song vệt tối mờ nhạt từng thấy từ trước vẫn nằm yên ở đường chân trời, không thay đổi hình dạng hay tiến lại gần hơn. Lâm Tĩnh chỉ lướt mắt qua một lần để xác nhận không có biến động bất thường trên mặt biển, rồi thu hồi toàn bộ sự chú ý về phần địa hình trên đảo mà hắn có thể trực tiếp tiếp cận trong giới hạn thể lực hiện tại.
 
+
+
 Nghỉ thêm vài nhịp thở trên mỏm đá cao cho đến khi nhịp tim ổn định và cơn đau nhức ở cẳng chân dịu xuống mức chịu đựng được, Lâm Tĩnh chống gậy đứng dậy. Lộ trình cho chặng kế tiếp đã hình thành rõ ràng trong đầu hắn: từ mỏm đá này đi chếch xuống chân vách đá thấp để kiểm tra các kẽ nứt và thảm thực vật cạn tại đó, rồi men theo hướng mốc đá sẫm màu quay trở về nơi trú trước khi nắng trưa lên đỉnh và lượng nước dự trữ cạn thêm.
 
+
+
 Hắn siết lại tay cầm trên thân gậy gỗ khô, dò mũi gậy xuống bậc đá đầu tiên dẫn về phía chân vách đá thấp, bắt đầu chặng khảo sát mới trên địa hình phía trong đảo với bước chân chậm rãi nhưng có định hướng rõ ràng hơn hẳn lúc rời mép sóng đầu ngày.
+

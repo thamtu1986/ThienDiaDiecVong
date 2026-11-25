@@ -2,36 +2,67 @@ CHƯƠNG 25: NƠI TRÚ KHI ĐÊM XUỐNG
 
 Gió vẫn thổi ngang mặt đá khi Lâm Tĩnh rời chỗ đứng. Anh chưa bước đi ngay. Bàn tay đặt trên đầu gậy giữ nguyên một lúc, còn mũi gậy vẫn tì xuống mặt đá phẳng. Hơi thở sau quãng đường vừa rồi chưa trở lại đều đặn. Mỗi lần hít vào, lồng ngực vẫn phải nâng lên sâu hơn bình thường; lúc thở ra, cổ họng khô ráp khiến hơi đi qua có cảm giác vướng lại. Anh nuốt khan một lần, rồi thôi. Cử động ấy không làm dịu được cơn khát, cũng không thể thay cho một ngụm nước.
 
+
+
 Ánh mắt anh hướng về phía trước. Địa hình ở đó không còn xa lạ như những đoạn triền đá và bụi cây anh đã men qua trước đó. Một vài đường nét thấp thoáng nối với khu vực quen thuộc dẫn về nơi trú. Nhưng nhìn thấy đường nét quen thuộc không có nghĩa là đã đứng trước nơi mình muốn đến. Khoảng cách còn lại vẫn phải được đi qua bằng chân, từng đoạn một. Anh không thể lấy cảm giác nhận ra phương hướng để thay cho việc xác nhận vị trí.
 
+
+
 Lâm Tĩnh cúi nhìn chân phải. Cổ chân vẫn đau, không dữ dội đến mức khiến anh mất thăng bằng khi đứng yên, nhưng cơn đau còn nằm đó, âm ỉ và rõ hơn mỗi khi anh chuyển trọng lượng. Hai bắp chân nặng, cơ thịt căng cứng sau quãng đường dài. Vùng hông phải và sườn vẫn mỏi; vai trái cũng chưa hết cảm giác nhức. Những chỗ ấy không đồng loạt lên tiếng, nhưng chỉ cần anh đứng lâu rồi thử đổi tư thế, từng vùng lại nhắc anh rằng sức lực đã hao đi không ít.
+
+
 
 Anh thử nhấc nhẹ gót chân phải, không nâng cả bàn chân khỏi mặt đá. Cơn đau lập tức rõ hơn một chút. Anh hạ gót xuống, chờ cho cảm giác ấy lắng lại rồi mới dồn tay lên gậy. Cây gậy gỗ không làm cho chân hết đau, chỉ giúp anh có thêm một điểm tựa khi đổi trọng lượng. Anh đã dựa vào nó suốt quãng đường quay về; lúc này, nó vẫn chỉ là một vật chống đỡ bình thường, không thể thay anh gánh hết sức nặng của thân thể.
 
 Anh nhìn lại mốc đá sẫm màu phía sau. Mốc đá vẫn nằm ở nơi có thể nhận ra giữa nền địa hình đã đi qua. Nó xác nhận hướng mà anh vừa rời khỏi, cũng nhắc rằng anh đã không quay ngược về phía những khu vực khảo sát trước đó. Nhưng mốc đá không nói cho anh biết phía trước còn bao xa, cũng không thể chỉ ra từng bước chân kế tiếp. Anh không cần quay lại đó. Chỉ cần giữ nó ở phía sau và tiếp tục đối chiếu hướng đi với những gì đang hiện ra trước mắt.
 
+
+
 Lâm Tĩnh bắt đầu bằng một bước ngắn. Mũi gậy được đặt xuống trước, cách chân không xa. Anh thử mặt đá ngay trước bàn chân, rồi mới chuyển một phần trọng lượng sang chân trái. Chân phải theo sau chậm hơn. Cổ chân đau khi chịu lực, nhưng vẫn nâng đỡ được thân người. Anh không cố bước dài để bù lại thời gian đã mất. Một bước có thể đi được không đồng nghĩa với nhiều bước liên tiếp đều sẽ dễ dàng; bởi vậy, anh chỉ tính đến khoảng nền ngay trước mặt.
+
+
 
 Anh không rời trục quay về để tìm kiếm. Những gì đã quan sát trong các ngày trước vẫn còn giới hạn rõ ràng. Có nơi anh đã trực tiếp đặt chân đến, nhìn gần mặt đá, đất, rễ cây và những chỗ lõm. Có nơi anh chỉ nhìn từ một khoảng cách nhất định, đủ để nhận ra hình dáng địa hình nhưng không đủ để biết bên trong có gì. Cũng có những vùng nằm ngoài đường đi, chưa được kiểm tra. Anh không thể gộp tất cả thành một kết luận rằng toàn bộ khu vực đều không có nước hay thức ăn. Điều anh biết chỉ là trong những nơi đã kiểm tra, anh chưa xác nhận được nguồn nước có thể sử dụng.
 
+
+
 Có lúc chân phải chạm vào một viên sỏi nhỏ khiến cổ chân nhói lên. Thân người anh nghiêng nhẹ. Cây gậy lập tức tì xuống nền, giữ lại phần trọng lượng đang chuyển lệch. Anh đứng yên, chờ cảm giác đau giảm bớt rồi mới bước tiếp. Viên sỏi nằm lại sau mũi giày, không lăn đi xa. Anh nhìn nó một thoáng rồi dời mắt. Đó chỉ là một chỗ đặt chân không vững, không phải dấu hiệu của một biến cố lớn. Anh không bị ngã, cũng không thấy có thương tích nào mới xuất hiện.
+
+
 
 Địa hình phía trước dần hiện ra rõ hơn trong ánh sáng đang tàn. Một đường nền quen thuộc dẫn về khu vực anh từng dùng làm nơi trú. Anh nhận ra nó không phải nhờ một dấu hiệu mới xuất hiện, mà nhờ sự tương ứng giữa những đường nét đã thấy từ trước với vị trí hiện tại. Dù vậy, anh vẫn chưa thể xác nhận nơi trú ngay trước mắt. Có những đoạn bị che khuất bởi địa hình thấp, và từ chỗ đứng này anh không nhìn xuyên qua được. Anh biết mình đang đi đúng hướng; còn việc đã đến nơi hay chưa phải đợi đến khi tận mắt nhìn thấy.
 
+
+
 Anh tiếp tục đi qua đoạn nền cứng. Mũi gậy dò trước một khoảng ngắn, bàn chân trái đặt xuống, rồi chân phải mới theo sau. Khi mặt đất hơi nghiêng, anh xoay thân vừa đủ để giữ trọng tâm ở giữa hai chân. Cổ chân phải phản ứng bằng một cơn đau âm ỉ, không tăng vọt nhưng cũng không biến mất. Anh cảm thấy sức nặng ở bắp chân dồn lên khi bước qua chỗ thấp, vì vậy đã dừng lại sau vài bước để thở. Không có một nhịp đi cố định nào được giữ từ đầu đến cuối. Khoảng cách giữa các lần dừng tùy thuộc vào nền đất và phản ứng của cơ thể.
+
+
 
 Anh nhớ lại những nơi đã đi qua trong chu kỳ khảo sát. Bãi đá nơi anh từng tìm dấu vết không đồng nghĩa với toàn bộ bờ đảo. Mỏm đá và sườn dốc anh đã kiểm tra chỉ cho biết những gì nằm trong tầm mắt và tầm tay ở những đoạn cụ thể. Khe ẩm không thành nước vẫn không thể tính là nguồn nước. Những chỗ đất và rễ cây anh nhìn thấy ở rìa triền cây bụi không đủ để xác nhận có thức ăn. Khoảng trũng từng được cân nhắc tránh qua cũng chưa từng được xác nhận là có nước hay có nguy hiểm chắc chắn. Mỗi nơi chỉ giữ lại đúng phần hiểu biết mà anh đã trực tiếp thu được.
 
 Lâm Tĩnh ngẩng đầu. Phía trước, đường nét quen thuộc đã gần hơn. Một phần địa hình từng chỉ là dáng mờ trong tầm nhìn giờ đã tách thành những đường viền rõ ràng. Anh dừng lại để đối chiếu, nhìn qua khoảng đất thấp rồi nhìn sang hướng đã chọn. Mốc đá sẫm màu vẫn ở phía sau, nơi anh đã rời đi. Nhưng những dấu hiệu địa hình gần nơi trú đang hiện ra đúng theo hướng anh đã giữ. Anh không cần quay lại kiểm tra mốc đá thêm lần nữa. Hướng đi đã được xác nhận bằng những gì đang trực tiếp ở trước mắt.
 
+
+
 Cuối cùng, nơi trú hiện ra trong tầm mắt. Anh nhận ra chỗ ấy qua vách chắn gió thấp và lớp vật liệu khô đã thu gom gần mỏm đá. Những chi tiết ấy thuộc về nơi trú anh đã chọn sau khi rời điểm cũ, không phải một chỗ mới tình cờ giống với nó. Anh vẫn đứng lại một thoáng để nhìn kỹ. Ánh sáng đã yếu đi, nhưng vách chắn thấp còn hiện thành đường nét quen thuộc trên nền đất. Anh bước nốt quãng ngắn còn lại. Mũi gậy chạm xuống nền gần nơi trú, chân trái theo sau, rồi chân phải đặt xuống chậm rãi.
+
+
 
 Anh nhìn quanh phần không gian có thể quan sát. Anh nhìn lại bàn tay và thân người, chỉ thấy cây gậy vẫn ở đó, quần áo vẫn là bộ đang mặc từ trước. Trên đoạn đường vừa đi, anh không dừng lại nhặt thêm thứ gì. Việc trở về chỉ đưa anh về chỗ cũ, không làm phần tài nguyên trong tay tăng lên. Trên người anh không có nước hay thức ăn mới được thu thêm trong chuyến quay về; ngoài cây gậy gỗ đang cầm và trang phục đang mặc, anh cũng không mang theo vật dụng nào vừa nhặt được dọc đường. Lớp vật liệu khô gần vách chắn vẫn là thứ anh đã thu gom từ trước. Ánh sáng chiều đang tắt dần, khiến những chỗ khuất sát nền khó nhìn rõ. Anh chưa thể xác nhận tình trạng vật chứa nước ở nơi trú chỉ bằng một cái nhìn thoáng qua. Muốn biết bên trong còn gì, anh phải kiểm tra trực tiếp khi đủ sáng và nhìn rõ. Trước mắt, cơn khát vẫn còn nguyên.
 
+
+
 Bên ngoài, ánh sáng cuối ngày tiếp tục rút khỏi mặt đất. Những đường viền xa dần hòa vào bóng tối, khiến các khu vực anh từng nhìn thấy không còn phân biệt rõ như ban ngày. Anh biết mình đã trở về nơi trú, nhưng điều đó không có nghĩa là đã hiểu hết địa hình quanh đây. Những đoạn đã khảo sát vẫn chỉ là những đoạn đã đi qua. Những nơi chỉ nhìn từ xa vẫn còn nguyên giới hạn. Những khu vực chưa đặt chân đến vẫn chưa có câu trả lời. Sự trở về khép lại một hành trình, không xóa đi những điều chưa biết.
+
+
 
 Lâm Tĩnh ngồi xuống một cách chậm rãi, tránh để cổ chân phải chịu lực đột ngột. Khi trọng lượng cơ thể được hạ thấp, hai bắp chân vẫn căng, còn vùng hông và sườn khiến anh phải điều chỉnh tư thế vài lần mới tìm được chỗ đỡ. Anh giữ cây gậy trong tầm tay. Bàn tay đặt trên thân gậy, hơi thở dần hạ xuống sau quãng đường cuối cùng. Cổ họng vẫn khô; cơn khát chưa được giải quyết. Anh cần giữ sức, theo dõi phản ứng của cổ chân và chờ lúc có thể kiểm tra những thứ ở nơi trú một cách rõ ràng. Trước mắt, anh chỉ ngồi yên, để cơ thể nghỉ sau hành trình.
 
+
+
 Anh nhìn về phía lối vừa đi qua. Mốc đá sẫm màu đã khuất dần trong bóng chiều, không còn hiện rõ như lúc anh đứng trên phiến đá. Dẫu vậy, anh vẫn nhớ vị trí của nó trong trục đường vừa hoàn thành. Từ mốc ấy, anh đã quay về qua những đoạn nền và địa hình quen thuộc, từng bước xác nhận hướng đi bằng những gì trực tiếp nhìn thấy. Quãng đường đã qua không cần được kéo dài thêm trong trí nhớ. Điều quan trọng lúc này là anh đã về đến nơi trú, còn sức lực và thương tích vẫn cần được tính đến trước khi làm bất cứ việc gì tiếp theo.
 
+
+
 Đêm dần phủ xuống vách chắn gió thấp. Hơi lạnh từ mặt đá lan lên khi ánh sáng cuối cùng rút khỏi khoảng đất trước nơi trú. Lâm Tĩnh ngồi yên, một tay giữ thân gậy, lắng nghe tiếng gió lùa qua lớp vật liệu khô gần đó. Những ngày khảo sát đã đưa anh đến nhiều nơi hơn lúc mới bắt đầu, nhưng hòn đảo vẫn còn những khoảng chưa được đặt chân tới. Anh đã trở về bằng quãng đường còn lại, không nhờ một lối tắt; những gì đã biết dừng ở đúng nơi anh từng nhìn thấy và chạm tới. Ngày hôm ấy khép lại trong cơn khát chưa dịu, cổ chân còn đau và thân thể mỏi mệt. Những việc phía trước vẫn để lại cho ngày sau.
+

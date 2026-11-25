@@ -1,0 +1,52 @@
+CHƯƠNG 18: CHÂN VÁCH ĐÁ THẤP
+
+Mũi gậy gỗ chạm xuống bậc đá thấp đầu tiên phát ra tiếng gõ khô khốc, trầm hơn hẳn âm vang sắc lạnh trên những phiến đá trơn sát mép sóng. Lâm Tĩnh giữ nguyên thế đứng nghiêng một nhịp, đợi cổ chân phải chịu đủ sức nặng của thân trên rồi mới thu chân trái bước theo. Gió biển thổi tạt ngang từ phía sau lưng giảm đi đáng kể khi vai anh hạ thấp qua sống đá gồ. Không còn tiếng sóng vỗ dội liên hồi vào mặt đá rêu, thay vào đó là tiếng lá khô cọ vào nhau xào xạc mỗi khi có luồng gió lùa qua khe hẹp.
+
+
+
+Đoạn dốc xuống chân vách đá không quá cao nhưng lổn nhổn đá vỡ lẫn đất khô bở vụn. Mỗi bước đặt xuống, đế giày mòn của anh lại làm trượt đi vài viên sỏi nhỏ, lăn lóc xuống phía dưới rồi mắc lại ở những hốc đá cạn. Lâm Tĩnh không dám bước nhanh. Vết đau âm ỉ dọc cẳng chân và cổ chân phải nhắc anh giữ trọng tâm thấp, tay phải siết chặt thân gậy gỗ, tay trái thỉnh thoảng đưa ra chạm nhẹ vào mặt đá bên sườn để giữ thăng bằng mỗi khi gặp bậc gãy. Vùng hông sườn bên phải và bả vai trái vẫn còn tức nặng mỗi lúc anh vươn người hoặc xoay vai tránh một mỏm đá nhô ra, buộc anh phải chia quãng đường ngắn thành từng đoạn dừng ngắn để thở đều. Trên lớp đất khô lẫn mảnh vỡ sắc cạnh, anh thử dồn nhẹ đầu mũi gậy xuống vài mảng đất bở trước khi đặt gót chân tới, tránh bước hụt vào những hốc rỗng ẩn dưới lớp vụn đá. Trước mỗi bước hạ xuống phần dốc hẹp, anh đặt mũi gậy thăm dò nền trước, thử độ vững của điểm tì rồi mới chuyển trọng tâm sang chân trước, để cổ chân phải không phải gánh cú giật đột ngột mỗi khi sỏi vụn trượt dưới đế giày.
+
+
+
+Khi bàn chân chạm tới nền đất tương đối phẳng ở chân vách đá thấp, Lâm Tĩnh đứng yên tại chỗ trong vài nhịp thở, trước hết ngoái nhìn ngược lên phía triền đá vừa đi xuống. Mốc đá sẫm màu đặt trên tảng đá phẳng ở mép trên vẫn nằm gọn trong tầm mắt, sẫm đặc và tách biệt hẳn khỏi màu xám bạc của mặt đá xung quanh. Nhìn rõ được nó từ vị trí này khiến lồng ngực anh dịu xuống đôi chút. Anh ghi nhớ góc nghiêng của sống đá nối từ chân vách lên tới điểm mốc ấy, đối chiếu lại đường lùi hiện tại với vệt dốc vừa bước qua, rồi mới quay mặt vào bức vách trước mặt.
+
+
+
+Chân vách đá thấp chạy uốn theo một vòng cung nông, cao quá đầu người chừng hai trượng, mặt đá xám xịt bị nắng gió bào mòn thành nhiều tầng nếp ngang dọc. So với triền đá trơ trụi ngoài mép sóng, nơi đây kín gió hơn và ít chịu hơi muối tạt trực tiếp hơn. Dọc theo chân vách có những vệt nứt chạy đứng từ lưng chừng vách xuống sát mặt đất, xen kẽ với từng cụm cỏ cứng và bụi cây thấp mọc rải rác từ các khe đất hẹp. Anh dừng lại vài nhịp, nghe ngóng tiếng gió lùa qua vách đá và quan sát kỹ hướng đổ bóng của các gờ đá trước khi bước tiếp, để chắc rằng không có mảnh đá bong tróc nào đang treo lơ lửng ngay phía trên đường đi. Những mảng đá nứt tách trên lưng chừng vách được anh liếc qua từng lượt trước khi bước vào phạm vi ngay dưới chân chúng. Giữa phần mặt đá đang hứng trực tiếp ánh nắng sáng với những dải bóng hẹp nằm sát chân gờ đá, sự chênh lệch sáng tối hiện rõ từng mảng, giúp anh phân định được những vết nứt có thể tiếp cận trong tầm với an toàn mà không cần dấn thân vào chỗ hiểm.
+
+
+
+Lâm Tĩnh không vội tiến sát vào chỗ rậm nhất. Anh men theo chân vách từ đầu phía gần triền dốc đi dần vào bên trong, giữ khoảng cách chừng một tầm gậy, dùng đầu gậy gỗ gõ nhẹ lên mặt đá và gạt thử lớp lá khô tích dưới chân vách trước khi đặt chân tới. Anh muốn biết liệu trong những kẽ nứt dọc có thể chạm tới có dấu hiệu ẩm rỉ từ tầng đá phía trên hay không, và lớp thảm thực vật lưa thưa ở đây bám rễ trên nền đất khô hoàn toàn hay có mạch ẩm ngầm.
+
+
+
+Kẽ nứt đầu tiên nằm ngay sát chân một gờ đá nhô. Khe rộng chừng bàn tay, ăn sâu vào lòng vách tối mờ. Lâm Tĩnh đứng lệch sang một bên, đưa mũi gậy gỗ vào phần khe có thể với tới, rà chậm từ dưới lên trên rồi rút ra quan sát đầu gậy dưới ánh sáng ban ngày. Đầu gỗ chỉ dính một lớp bụi đá mịn màu xám nhạt, khô rời, vừa chạm ngón tay vào đã tơi ra thành bột. Anh cúi thấp người, ghé sát nhìn vào phần miệng và chân khe có thể quan sát được nhưng không thấy vệt rêu ướt hay dấu vết của nước đọng. Lớp đất quanh miệng khe nứt nẻ thành từng mảng nhỏ, cứng như sành phơi nắng, còn phần sâu hơn bên trong vách tối đen và khuất hẳn tầm nhìn nên anh không thò tay hay dấn sâu vào chỗ hẹp.
+
+
+
+Anh rời kẽ nứt thứ nhất, tiếp tục đi thêm mười mấy bước dọc theo chân vách. Nắng buổi sáng đã lên cao hơn, ánh sáng chiếu xiên xuống làm lộ rõ những đường gân đá sần sùi và những khoảng bóng râm hẹp dưới chân vách. Mỗi lần đổi tư thế hoặc bước qua mảng sỏi rời, bàn chân phải lại truyền lên một đợt nhói âm dọc cổ chân và ống quyển, khiến anh phải hạ nhịp bước xuống chậm rãi, dồn bớt lực sang thân gậy gỗ để giữ cho bước đi không bị chao đảo. Không khí ở đây bớt mặn hơn ngoài bờ đá, nhưng hơi nóng từ mặt đá và nền đất khô hắt lên vẫn khiến cổ họng Lâm Tĩnh khô rát. Mỗi lần nuốt nước bọt, cảm giác rát nhẹ nơi cuống họng lại rõ thêm một chút. Anh tự nhủ không được vội, chỉ kiểm tra những điểm có dấu hiệu khác biệt rõ ràng trên mặt vách, tuyệt đối không tiêu hao sức lực vào việc cạy phá đá hay đào bới vô ích.
+
+
+
+Khoảng giữa vòng cung chân vách có một cụm bụi cây thấp mọc chen từ một khe nứt lớn hơn, lá nhỏ, màu xanh xỉn, cành cứng và xoắn lại sát mặt đá. Dưới gốc bụi có một khoảng râm tối màu hơn nền đất xung quanh. Thấy sắc đất sẫm lại, ánh mắt Lâm Tĩnh khựng lại trong giây lát. Anh bước chậm tới, chống gậy giữ vững cổ chân phải rồi ngồi xổm xuống một bên, tránh đè trực tiếp lên chân đau.
+
+
+
+Anh dùng mũi gậy gạt nhẹ lớp lá rụng dày bằng hai đốt ngón tay dưới gốc bụi. Bên dưới lớp lá khô là lớp đất nâu sẫm, trông khác hẳn màu xám trắng khô khốc ở bên ngoài. Lâm Tĩnh đưa hai ngón tay chạm nhẹ vào mặt đất đó. Đất hơi mát và có chút ẩm nhẹ ở lớp mặt, nhưng khi ấn đầu ngón tay xuống sâu hơn một chút, bên dưới vẫn là đất lẫn vụn đá khô cứng. Không có nước rỉ, không có vũng đọng, và lượng ẩm mỏng manh ấy chỉ đủ làm đầu ngón tay hơi se mát chứ không thể gom hay vắt thành giọt. Anh khẽ thở ra, thu tay lại và phủi sạch lớp bụi đất bám trên đầu ngón tay vào vạt áo. Một vệt đất ẩm nhẹ dưới tán lá kín gió không đồng nghĩa với nguồn nước sử dụng được; nếu vội đào bới ở đây chỉ vì màu đất sẫm hơn, anh sẽ chỉ tiêu hao thêm thể lực và mất thêm phần nước quý giá trong cơ thể mà không có cơ sở chắc chắn.
+
+
+
+Anh đứng dậy, hơi nhăn mặt khi khớp gối và cổ chân phải căng lên lúc đổi tư thế, rồi đứng yên vài nhịp để cơn đau tức ở hông sườn phải và bả vai trái tạm dịu bớt trước khi tiếp tục bước. Trong khoảng lặng ngắn ấy, luồng gió nhẹ lướt ngang mép vách mang theo chút hơi ấm khô quánh, làm lớp áo mỏng chạm khẽ vào vai trái đang nhức. Anh tiếp tục men theo phần còn lại của chân vách đá thấp, giữ khoảng cách an toàn với vách đá và dò từng bước trên nền đất lẫn đá vụn. Dọc theo đoạn đường này, anh quan sát thêm những mảng rêu khô xám bạc bám sát gờ đá cao và vài chùm rễ nhỏ lộ ra trên mặt đất nứt, tất cả đều giòn khô dưới nắng. Càng đi về phía cuối vòng cung, mặt vách càng thấp dần và thoải ra, nối tiếp sang một khoảng đất đá lởm chởm dẫn về phía mảng cây bụi dày hơn nằm sâu vào bên trong.
+
+
+
+Trên đoạn cuối này, anh kiểm tra thêm hai khe nứt nông có thể với tới. Một khe chỉ chứa đầy cát khô và vỏ ốc nhỏ bị gió cuốn vào từ lâu; khe còn lại hẹp sát mặt đất, bên trong có vài cọng cỏ úa vàng đã khô giòn, chạm vào là gãy vụn. Tới điểm mà chân vách đá thấp gần như hòa vào nền đất sỏi phía trước, Lâm Tĩnh dừng bước. Trong chặng di chuyển dọc chân vách đá thấp này, anh đã đi qua dải chân vách từ đầu tới cuối vòng cung và kiểm tra các kẽ nứt, cụm bụi cùng những điểm nằm trong tầm với an toàn; những gì anh quan sát được tại các vị trí đã kiểm tra cho thấy không có mạch nước rỉ lộ ra hay hốc đọng nước nào có thể dùng được, cũng không thấy dấu vết quả hay rễ củ ăn được ngay trên đường đi, còn những hốc sâu khuất tầm nhìn hoặc các lớp địa hình xa hơn vẫn nằm ngoài phạm vi xác minh trực tiếp của anh.
+
+
+
+Anh quay đầu nhìn lại phía sau một lần nữa. Mốc đá sẫm màu trên triền đá cao vẫn hiện rõ trên nền trời sáng, như một điểm neo lặng lẽ giữ cho hướng quay về không bị lẫn vào những nếp đá trùng nhau. Sự mỏi mệt tích tụ dần sau chuỗi bước dò dẫm trên nền đá lởm chởm khiến vai và chân anh nặng trĩu hơn, trong khi hơi nóng ban ngày tăng dần và mồ hôi rịn ra sau gáy lẫn dọc sống lưng làm cảm giác khát rõ rệt hơn. Ở trước mặt anh, cách một khoảng đất đá gồ ghề không xa, là rìa ngoài của mảng cây bụi dày và xanh sẫm hơn hẳn những bụi cây thưa dưới chân vách.
+
+
+
+Lâm Tĩnh siết lại cán gậy gỗ trong lòng bàn tay, đối chiếu khoảng cách quay ngược lên mốc đá sẫm màu phía sau với quãng ngắn dẫn tới rìa ngoài mảng cây bụi trước mặt. Anh biết thể lực của mình không cho phép đi sâu vào vùng rậm rạp chưa rõ địa hình, nhưng phần rìa ngoài của mảng cây bụi kia vẫn nằm trong tầm quan sát trực tiếp và còn giữ được đường lui rõ ràng. Nghĩ vậy, anh điều chỉnh lại nhịp thở, dồn trọng tâm vững vàng rồi bước chậm rời khỏi chân vách đá thấp, hướng về phía rìa ngoài của triền cây bụi trước mặt.
+

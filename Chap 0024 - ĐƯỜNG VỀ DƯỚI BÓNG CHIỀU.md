@@ -1,35 +1,66 @@
 CHƯƠNG 24: ĐƯỜNG VỀ DƯỚI BÓNG CHIỀU
 
+
+
 Lâm Tĩnh vẫn đứng yên trên vạt đá cao. Đầu gậy gỗ chống trong hốc nhỏ trước mũi giày, bàn tay anh giữ lấy thân gậy, những ngón tay khép vừa đủ để không phải dồn thêm sức xuống cổ tay. Anh không vội nhấc chân. Sau quãng đường quay về từ triền dốc, cơ thể đã có một khoảng lặng ngắn, nhưng khoảng lặng ấy chưa đủ để xóa đi những gì còn đọng lại trong từng thớ thịt. Cổ chân phải vẫn âm ỉ đau. Hai bắp chân nặng và căng, hông sườn bên phải cùng bả vai trái cũng còn mỏi. Cổ họng khô rát, không có ngụm nước nào được bổ sung. Hơi thở đã lắng hơn, song chưa thể xem là hồi phục.
+
+
 
 Gió chiều thổi ngang qua mặt đá, lùa qua lớp áo đã khô gần hết. Ánh nắng thấp dần, không còn phủ lên phần đá ngay trước mũi giày như lúc trước. Bóng sáng đã dịch đi, để lại một khoảng màu lạnh hơn trên mặt nền. Lâm Tĩnh nhìn xuống chỗ đặt chân, rồi lại nhìn về phía trước. Anh không lấy sự yên tĩnh của cơ thể trong khoảnh khắc này làm dấu hiệu rằng sức lực đã trở lại. Chỉ có thể nói nhịp thở không còn gấp như khi vừa dừng lại. Cảm giác nặng ở chân vẫn nằm nguyên đó, còn cơn đau nơi cổ chân phải chưa hề biến mất. Anh chỉ ghi nhận những gì đang hiện diện, không lấy cảm giác dễ chịu nhất thời làm căn cứ cho một kết luận rộng hơn.
 
+
+
 Lâm Tĩnh thả lỏng đầu gối một chút, để trọng lượng thân người dồn xuống cả hai chân thay vì giữ nguyên ở một tư thế cứng. Cổ chân phải lập tức truyền lên một cảm giác đau âm ỉ, không sắc nhói, nhưng đủ khiến anh dừng lại. Anh giữ nguyên tư thế ấy trong chốc lát, không cố ép chân phải chịu thêm. Bàn tay trên gậy siết lại. Khi cảm giác căng ở bắp chân dịu đi đôi chút, anh mới chuyển một phần trọng lượng sang chân trái. Động tác rất nhỏ, chậm đến mức gần như không làm thay đổi vị trí hai bàn chân. Nhưng sự thay đổi ấy cho anh biết chân phải vẫn có thể chịu lực trong giới hạn nhất định, miễn là không bất ngờ dồn toàn bộ sức nặng xuống nó.
 
+
+
 Anh không thể từ đó kết luận rằng cổ chân đã ổn. Một lần chịu được sức nặng không có nghĩa những lần tiếp theo cũng sẽ như vậy. Đường phía trước còn phải đi qua từng đoạn nền khác nhau, trong khi ánh sáng đang giảm dần. Nếu bước quá dài, hoặc đặt chân xuống nơi không nhìn rõ, chỉ một lần mất thăng bằng cũng có thể khiến quãng đường còn lại trở nên khó khăn hơn. Anh nhìn lại đầu gậy trong hốc đá, thử nhấc nhẹ bàn tay rồi đặt xuống lần nữa. Hốc nhỏ vẫn giữ được đầu gậy. Khi anh nghiêng thân một chút, gậy không trượt khỏi điểm chống. Đó chỉ là một điểm tựa bình thường, không hơn.
+
+
 
 Sau khi kiểm tra tư thế, anh mới bắt đầu rời vạt đá. Chân trái nhích trước một khoảng ngắn, bàn chân không rời nền quá cao. Anh đặt gót xuống trước, rồi từ từ hạ phần còn lại của bàn chân, để cảm nhận mặt đá dưới đế giày. Đầu gậy được rút khỏi hốc nhỏ sau khi anh đã chuyển bớt trọng lượng sang chân trái. Anh đưa gậy lên, tìm một điểm chống gần hơn ở phía trước, nơi mặt nền có thể nhìn thấy rõ. Đầu gậy chạm xuống, anh ấn thử vừa đủ để biết nó không nằm trên một lớp sỏi rời. Khi điểm chống đã ổn định, chân phải mới theo lên.
 
 Bước đầu tiên không nhẹ nhàng như anh mong muốn. Khi chân phải rời khỏi vạt đá, cơn đau âm ỉ ở cổ chân rõ hơn trong một thoáng. Anh lập tức giảm biên độ chuyển động, không cố đưa chân qua xa. Mũi giày chạm nền trước, rồi gót chân hạ xuống chậm rãi. Anh giữ gậy ở phía trước và hơi chếch sang bên, để khi chân phải nhận lực, bàn tay có thể chia bớt sức nặng sang thân gậy. Động tác ấy khiến tốc độ chậm hơn, nhưng giúp anh không phải đặt cược toàn bộ thăng bằng vào một bên chân. Anh đứng lại sau bước thứ nhất, đợi cảm giác đau trở về mức âm ỉ ban đầu rồi mới tiếp tục.
 
+
+
 Từ vạt đá cao, trục đường quay về vẫn nằm phía trước. Mốc đá sẫm màu từng được nhận ra ở đoạn đường trước còn có thể dùng để đối chiếu phương hướng. Anh không cần nhìn chằm chằm vào nó trong từng bước. Chỉ thỉnh thoảng ngẩng lên, xác nhận vị trí của mốc so với hướng mình đang đi, rồi lại cúi xuống quan sát phần nền ngay trước chân. Mốc đá không cho anh biết mọi chỗ gồ ghề trên đường, cũng không thể thay thế việc nhìn mặt đất. Nó chỉ giúp anh tránh để hướng đi bị lệch khỏi trục đã chọn khi phải cúi đầu lâu để dò từng chỗ đặt chân.
+
+
 
 Anh đi thêm một đoạn ngắn. Bàn chân trái đặt xuống nơi mặt đá tương đối liền, chân phải theo sau với bước ngắn hơn. Anh giữ gậy sát bên thân, chỉ đưa ra trước khi cần thêm điểm tựa, mắt tập trung vào khoảng đất đá vừa đủ cho hai bước kế tiếp. Một dải sỏi nhỏ nằm vắt ngang lối đi. Anh nhận ra những hạt sỏi rời trước khi tới gần, nên thu ngắn bước chân trái, đặt bàn chân xuống phần đá lộ ra bên cạnh. Chân phải theo qua chậm hơn. Sỏi khẽ dịch dưới mép đế giày, nhưng anh đã giữ được trọng tâm và không phải bước lệch khỏi trục đường.
 
+
+
 Đi được thêm vài bước, bắp chân bắt đầu căng lên vì phải liên tục giữ thân người trong tư thế dè chừng. Anh dừng ở nơi mặt đá tương đối liền, không lập tức cúi xuống nhìn chân. Bàn tay trái đổi cách nắm gậy, dịch vị trí các ngón để giảm sức ghì ở cổ tay. Bả vai trái vẫn mỏi, nên anh không giữ cánh tay ở tư thế nâng cao lâu hơn cần thiết. Một lát sau, anh mới nhìn xuống cổ chân phải. Cơn đau vẫn âm ỉ, không tăng rõ sau đoạn vừa đi, nhưng cũng chẳng nhẹ đi. Anh ghi nhận mức chịu đựng ấy như một giới hạn tạm thời, không phải dấu hiệu cho phép tăng tốc.
+
+
 
 Khi ngẩng lên, anh thấy mốc đá sẫm màu vẫn nằm phía sau, ở vị trí phù hợp với hướng đã đi. Anh không cần quay hẳn người để nhìn lại. Chỉ một lần đối chiếu ngắn đã đủ xác nhận mình chưa rời khỏi trục quay về. Phần đường trước mặt vẫn mở theo hướng cũ, nhưng những khoảng nằm ngoài tầm nhìn gần không vì thế mà trở thành địa hình đã biết. Anh không lấy màu sắc hay dáng vẻ từ xa để kết luận mặt đất ở đó bằng phẳng. Mốc đá chỉ giúp giữ phương hướng; từng chỗ đặt chân vẫn phải được quyết định từ những gì mắt anh nhìn thấy ngay trước mặt.
 
+
+
 Ánh sáng thấp làm ranh giới giữa những chỗ đá sáng và phần bóng đổ khó nhận ra hơn trước. Một khoảng tối hiện ra dưới chân dốc thoai thoải, nhưng khi đổi góc nhìn, đường viền của nó nhạt đi theo bóng chiều. Anh không vội xem đó là chỗ lõm hay một lớp vật liệu khác. Đầu gậy chạm nhẹ vào phần nền đã nhìn rõ bên cạnh, rồi anh đặt chân trái xuống đó. Chân phải được đưa theo sau với khoảng cách ngắn. Anh không cần thử toàn bộ vùng tối; chỉ cần chọn phần nền đã có thể nhận biết và tiếp tục trên trục cũ. Ánh sáng thay đổi khiến mỗi bước cần thêm thời gian, chứ không buộc anh phải mở một lối đi mới.
+
+
 
 Có đoạn mặt đá hơi nghiêng, khiến hông sườn phải căng lên khi anh giữ thăng bằng. Anh nghiêng đầu gậy về phía thuận tay, điều chỉnh vị trí chống để thân người không đổ dồn sang chân phải. Bàn chân trái nhận phần lớn sức nặng trong lúc chân phải tìm chỗ đặt xuống. Động tác không hoàn toàn thoải mái; bắp chân vẫn nặng, còn vai trái nhói mỏi khi phải giữ gậy lâu. Anh dừng lại sau khi đứng vững, thả lỏng cánh tay trong chốc lát. Cảm giác mỏi cũ vẫn còn, nhưng chưa xuất hiện cơn đau mới. Anh tiếp tục dè dặt, không ép cơ thể vượt quá khả năng vừa được kiểm tra.
 
 Anh tiếp tục di chuyển theo hướng đã chọn. Mặt nền thay đổi từng đoạn, nhưng không có chỗ nào buộc anh phải mở một cuộc khảo sát riêng. Khi gặp một khoảng sỏi rời, anh giảm bước, đặt gậy xuống phần đá chắc hơn đã nhìn thấy, rồi mới đưa chân qua. Sỏi lăn nhẹ dưới đế giày, khiến anh giữ nguyên tư thế cho đến khi bàn chân ổn định. Anh không giẫm mạnh để nén lớp sỏi, cũng không thử đi sâu vào vùng nền bên cạnh. Chỉ cần vượt qua phần đang nằm ngay trên trục quay về. Khi đã đứng vững ở phía bên kia, anh mới chuyển đầu gậy lên trước và tiếp tục.
 
+
+
 Càng về chiều, ánh sáng càng nghiêng thấp. Những bóng đổ kéo dài trên mặt đá, khiến một số đường nét vốn dễ nhận ra trở nên mờ hơn. Anh không thể dựa vào ánh sáng ban đầu để phán đoán mọi chỗ đặt chân ở phía trước. Mỗi đoạn đi được chia nhỏ theo tầm nhìn thực tế. Anh nhìn chỗ đặt chân, kiểm tra bằng đầu gậy nếu cần, rồi mới chuyển trọng lượng và ngẩng lên đối chiếu hướng đi. Trình tự ấy lặp lại, không nhanh, cũng không tạo ra cảm giác chắc chắn tuyệt đối. Nó chỉ giúp anh hạn chế những sai sót có thể tránh được trong điều kiện hiện tại.
+
+
 
 Anh dừng lại ở một khoảng mặt đá tương đối bằng, đầu gậy chống xuống trước khi hai chân ổn định. Hơi thở nặng hơn sau đoạn vừa đi, nhưng không đến mức khiến anh phải cúi gập người. Cổ họng vẫn khô. Anh nuốt khan một lần, cảm giác rát nơi cuống họng không giảm. Không có nước ở đây để bổ sung, và anh cũng không rời trục đường nhằm tìm kiếm thứ chưa được xác nhận. Anh nhìn về phía trước, rồi quay đầu đối chiếu mốc đá sẫm màu lần nữa. Mốc vẫn giúp anh xác nhận hướng đã đi, còn phần đường tiếp theo vẫn cần được xử lý bằng quan sát gần.
 
+
+
 Sau một đoạn nữa, anh ngẩng đầu và nhận ra vùng địa hình phía trước đã gần với khu vực dẫn về nơi trú hơn so với lúc còn đứng trên vạt đá cao. Anh không vội xác nhận mình đã tới nơi. Từ vị trí hiện tại, điều có thể biết chỉ là hướng đi đang đưa anh trở lại vùng đã quen thuộc; phần đường còn lại vẫn phải được nhìn tận mắt. Anh đối chiếu mốc đá sẫm màu lần cuối trong tầm nhìn. Nó nằm phía sau, đúng với hướng anh đã rời đi. Anh không cần quay lại mốc, cũng không cần tiến về một hướng khác để kiểm chứng. Trục quay về vẫn được giữ.
 
+
+
 Gió lùa qua mặt đá, mang theo hơi lạnh của buổi chiều đang xuống. Lâm Tĩnh đứng trên trục đường quay về, một tay giữ thân gậy đang chống xuống nền đá. Hơi thở còn nặng sau quãng di chuyển; cổ chân phải vẫn âm ỉ đau, bắp chân và những vùng cơ đã mỏi chưa được thả lỏng. Ánh sáng chiều tiếp tục hạ thấp trên đoạn đường phía trước. Anh chưa tới nơi trú ẩn, cũng chưa hồi phục. Phía sau, mốc đá sẫm màu vẫn nằm trong tầm đối chiếu.
+
